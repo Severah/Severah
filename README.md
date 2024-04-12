@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Rapid Skills Tech in Software Engineering
 - 💞️ I’m looking forward to meet all the other beginners. A Journey of a thousand Miles begins with a single step.
 - 📫 How to reach me: severahmwanyumba24@gmail.com
-- 😄 Pronouns: She
+- 😄 Pronouns: She/her
 - ⚡ Fun fact: I don't like Nyama Choma
 
 <!---
